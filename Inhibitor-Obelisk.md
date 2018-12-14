@@ -1,1 +1,0 @@
-![](http://loenwind.info/eio/Inhibitor_Obelisk.png)

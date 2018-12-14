@@ -1,1 +1,0 @@
-![](http://loenwind.info/eio/Slice_N_Splice.png)

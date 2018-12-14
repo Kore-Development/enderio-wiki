@@ -1,1 +1,0 @@
-![](http://loenwind.info/eio/Z-Logic_Controller.png)

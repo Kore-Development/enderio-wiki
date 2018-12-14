@@ -1,1 +1,0 @@
-![](http://loenwind.info/eio/Farming_Station.png)

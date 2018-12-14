@@ -1,1 +1,0 @@
-![](http://loenwind.info/eio/Zombie_Electrode.png)

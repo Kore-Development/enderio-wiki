@@ -1,1 +1,0 @@
-![](http://loenwind.info/eio/Dark_Steel_Anvil.png) ![](http://loenwind.info/eio/Very_Damaged_Dark_Steel_Anvil.png)

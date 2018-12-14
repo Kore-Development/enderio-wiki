@@ -1,1 +1,0 @@
-![](http://loenwind.info/eio/Dimensional_Transceiver.png)

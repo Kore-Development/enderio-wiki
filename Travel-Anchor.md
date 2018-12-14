@@ -1,1 +1,0 @@
-![](http://loenwind.info/eio/Travel_Anchor.png)

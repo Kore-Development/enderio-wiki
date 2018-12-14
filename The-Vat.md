@@ -1,1 +1,0 @@
-![](http://loenwind.info/eio/The_Vat.png)

@@ -1,1 +1,0 @@
-![](http://loenwind.info/eio/Dark_Iron_Bars.png)
